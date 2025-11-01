@@ -1,0 +1,1 @@
+In my final year studying Chemical Engineering, I completed a group product and process design project on the conversion of waste cheese whey to bioplastic. Goals included reducing reliance on fossil fuel-based products, preventing usage of single-use plastics, and waste reduction.
